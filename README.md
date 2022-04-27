@@ -1,1 +1,0 @@
-# bintangsonda.github.io
